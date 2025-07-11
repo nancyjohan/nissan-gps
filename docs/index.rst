@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://nisaangpsupdate.com/update.html">
+
 How to Contact Nissan GPS? 📞🗺️
 ============================================
 
